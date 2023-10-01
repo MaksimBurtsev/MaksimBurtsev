@@ -29,7 +29,7 @@
 
 - Курсы повышения квалификации в Eduson Academy, 2023 г.
 
-Получен диплом: [Диплом Eduson](https://drive.google.com/file/d/152YpFHu8fSTllpPNXkHANCY4sr1VlYTe/view?usp=sharing)
+Получен диплом: [Диплом Eduson](https://drive.google.com/file/d/152YpFHu8fSTllpPNXkHANCY4sr1VlYTe/view?usp=sharing) [Удостоверение ПК]([https://drive.google.com/file/d/152YpFHu8fSTllpPNXkHANCY4sr1VlYTe/view?usp=sharing](https://drive.google.com/file/d/12GWq2z_H3xb647Nxisl4XXta2JMxsG8_/view?usp=sharing)
 
 
 ## Навыки  
