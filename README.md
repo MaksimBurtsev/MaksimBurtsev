@@ -25,11 +25,11 @@
 
 - Курсы профессиональной переподготовки в Школе 21 (совместно с ТГУ), 2023 г.  
 
-Получен диплом: [Диплом ТГУ](https://drive.google.com/file/d/1AdUmK0Sj6_c_BpTBsrsWAQzDQ3g1cmGG/view?usp=sharing)
+[Диплом ТГУ](https://drive.google.com/file/d/1AdUmK0Sj6_c_BpTBsrsWAQzDQ3g1cmGG/view?usp=sharing)
 
 - Курсы повышения квалификации в Eduson Academy, 2023 г.
 
-Получен диплом: [Диплом Eduson](https://drive.google.com/file/d/152YpFHu8fSTllpPNXkHANCY4sr1VlYTe/view?usp=sharing), [Удостоверение ПК](https://drive.google.com/file/d/12GWq2z_H3xb647Nxisl4XXta2JMxsG8_/view?usp=sharing)
+[Диплом Eduson](https://drive.google.com/file/d/152YpFHu8fSTllpPNXkHANCY4sr1VlYTe/view?usp=sharing), [Удостоверение ПК](https://drive.google.com/file/d/12GWq2z_H3xb647Nxisl4XXta2JMxsG8_/view?usp=sharing)
 
 
 ## Навыки  
