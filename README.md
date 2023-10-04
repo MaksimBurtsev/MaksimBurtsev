@@ -73,7 +73,7 @@ SQL, REST API, DevTools, Git, Jira, Trello, Asana, Postman, Notion, TestIT, Qase
 [coub]: https://coub.com/coubnoob
 
   
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ## Цели
 
 - Получить первый опыт работы в роли QA  
