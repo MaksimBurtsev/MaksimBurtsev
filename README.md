@@ -65,6 +65,7 @@ SQL, REST API, DevTools, Git, Jira, Trello, Asana, Postman, Notion, TestIT, Qase
 [<img align="left" alt="Максим | Telegram" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/telegram.svg" />][telegram]
 [<img align="left" alt="Максим | YouTube" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
 [<img align="left" alt="Максим | SoundCloud" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/soundcloud.svg" />][soundcloud]
+[<img align="left" alt="Максим | Coub" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/bluetooth.svg" />][soundcloud]
 
 [telegram]: https://t.me/amoraitr 
 [youtube]: https://www.youtube.com/channel/UChrlouiUoXNNwSKn3VoQh6g
