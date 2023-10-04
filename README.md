@@ -72,7 +72,7 @@ SQL, REST API, DevTools, Git, Jira, Trello, Asana, Postman, Notion, TestIT, Qase
 [soundcloud]: https://soundcloud.com/coubnoob
 [coub]: https://coub.com/coubnoob
 
-_
+  
 
 ## Цели
 
