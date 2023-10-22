@@ -41,7 +41,7 @@
 
 **Технические навыки:**
 
-SQL, REST API, DevTools, Git, Jira, Trello, Asana, Postman, Notion, TestIT, Qase, Sitechco, VSCode, Fiddler, Android Studio, SauselLabs, Browserstack
+SQL, REST API, DevTools, Git, Jira, Trello, Asana, Postman, Notion, TestIT, Qase, Sitechco, VSCode, Fiddler, Android Studio, SauselLabs, Browserstack, Wireshark, OWASP ZAP
 
 **Личные качества:**
 
