@@ -52,7 +52,7 @@ SQL, REST API, DevTools, Git, Jira, Trello, Asana, Postman, Notion, TestIT, Qase
 - Эмоциональный интеллект 
 - Быстрая обучаемость
 
-Я легко осваиваю новые инструменты и подходы, готов применить их на практике. [Удостоверения повышения квалификации](https://drive.google.com/file/d/1lZd6I8vj9d8w3VPxllLjw_YIllKRZCOt/view?usp=sharing)
+Я легко осваиваю новые инструменты и подходы, готов применить их на практике. [Удостоверения повышения квалификации](https://drive.google.com/file/d/15qlbXTi35u28x-Sv5WxCqKifaLosPHvb/view?usp=drive_link)
 
 Обладаю навыками эффективной коммуникации - ясно выражаю мысли в устной и письменной речи, умею слушать и учитывать иные точки зрения.
 
