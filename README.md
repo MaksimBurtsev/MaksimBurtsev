@@ -31,7 +31,7 @@
 
 - Курсы повышения квалификации в Eduson Academy, 2023 г.
 
-[Удостоверение ПК](https://drive.google.com/file/d/12GWq2z_H3xb647Nxisl4XXta2JMxsG8_/view?usp=sharing)
+[Удостоверение ПК Eduson](https://drive.google.com/file/d/12GWq2z_H3xb647Nxisl4XXta2JMxsG8_/view?usp=sharing), [Удостоверение ПК БФУ](https://drive.google.com/file/d/11pOWLctld4a3c5V89i5hkgvbk8c40z5I/view?usp=sharing)
 
 
 ## Навыки  
