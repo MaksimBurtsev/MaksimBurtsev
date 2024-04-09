@@ -27,11 +27,12 @@
 
 - Курсы профессиональной переподготовки в Школе 21 (совместно с ТГУ), 2023 г.  
 
-[Диплом ТГУ](https://drive.google.com/file/d/1AdUmK0Sj6_c_BpTBsrsWAQzDQ3g1cmGG/view?usp=sharing), [Диплом Школа 21](https://drive.google.com/file/d/1c5dl6TjrmEHnHnly9zZxb5a8CHm8nmwJ/view?usp=drive_link), [Диплом Eduson](https://drive.google.com/file/d/152YpFHu8fSTllpPNXkHANCY4sr1VlYTe/view?usp=sharing)
+[Диплом ТГУ](https://drive.google.com/file/d/1AdUmK0Sj6_c_BpTBsrsWAQzDQ3g1cmGG/view?usp=sharing), [Диплом Школа 21](https://drive.google.com/file/d/1c5dl6TjrmEHnHnly9zZxb5a8CHm8nmwJ/view?usp=drive_link) [Диплом Eduson](https://drive.google.com/file/d/152YpFHu8fSTllpPNXkHANCY4sr1VlYTe/view?usp=sharing)
 
-- Курсы повышения квалификации в Eduson Academy, 2023 г.
+- Курсы повышения квалификации в БФУ им. И. Канта и Eduson Academy.
 
-[Удостоверение ПК Eduson](https://drive.google.com/file/d/12GWq2z_H3xb647Nxisl4XXta2JMxsG8_/view?usp=sharing), [Удостоверение ПК БФУ](https://drive.google.com/file/d/11pOWLctld4a3c5V89i5hkgvbk8c40z5I/view?usp=sharing)
+[Удостоверение ПК БФУ](https://drive.google.com/file/d/11pOWLctld4a3c5V89i5hkgvbk8c40z5I/view?usp=sharing), [Диплом Eduson](https://drive.google.com/file/d/152YpFHu8fSTllpPNXkHANCY4sr1VlYTe/view?usp=sharing),
+[Удостоверение ПК Eduson](https://drive.google.com/file/d/12GWq2z_H3xb647Nxisl4XXta2JMxsG8_/view?usp=sharing) 
 
 
 ## Навыки  
