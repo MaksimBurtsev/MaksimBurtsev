@@ -27,7 +27,7 @@
 
 - Курсы профессиональной переподготовки в Школе 21 (совместно с ТГУ), 2023 г.  
 
-[Диплом ТГУ](https://drive.google.com/file/d/1AdUmK0Sj6_c_BpTBsrsWAQzDQ3g1cmGG/view?usp=sharing), [Диплом Школа 21](https://drive.google.com/file/d/1c5dl6TjrmEHnHnly9zZxb5a8CHm8nmwJ/view?usp=drive_link) [Диплом Eduson](https://drive.google.com/file/d/152YpFHu8fSTllpPNXkHANCY4sr1VlYTe/view?usp=sharing)
+[Диплом ТГУ](https://drive.google.com/file/d/1AdUmK0Sj6_c_BpTBsrsWAQzDQ3g1cmGG/view?usp=sharing), [Диплом Школа 21](https://drive.google.com/file/d/1c5dl6TjrmEHnHnly9zZxb5a8CHm8nmwJ/view?usp=drive_link)
 
 - Курсы повышения квалификации в БФУ им. И. Канта и Eduson Academy.
 
