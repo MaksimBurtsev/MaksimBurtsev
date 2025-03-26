@@ -33,7 +33,7 @@
 
 - Курсы VK Education.
   
-[Сертификат]([https://drive.google.com/file/d/1_hxwksr1GQOesa8DfKmAs-LVUalI_X8w/view?usp=sharing])
+[Сертификат](https://drive.google.com/file/d/1_hxwksr1GQOesa8DfKmAs-LVUalI_X8w/view?usp=sharing)
  
 - Стажировка.
 
