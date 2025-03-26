@@ -32,7 +32,9 @@
 [Удостоверение ПК Eduson](https://drive.google.com/file/d/12GWq2z_H3xb647Nxisl4XXta2JMxsG8_/view?usp=sharing) 
 
 - Курсы VK Education.
-[Сертификат]([https://drive.google.com/file/d/1_hxwksr1GQOesa8DfKmAs-LVUalI_X8w/view?usp=sharing])  
+  
+[Сертификат]([https://drive.google.com/file/d/1_hxwksr1GQOesa8DfKmAs-LVUalI_X8w/view?usp=sharing])
+ 
 - Стажировка.
 
 [Сертификат](https://drive.google.com/file/d/1yRySHcCyKW1gJTqUCX5Wa48NUqcYiPn8/view?usp=drive_link)
