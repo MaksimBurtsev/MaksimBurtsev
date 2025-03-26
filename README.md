@@ -31,6 +31,8 @@
 [Удостоверение ПК БФУ](https://drive.google.com/file/d/11pOWLctld4a3c5V89i5hkgvbk8c40z5I/view?usp=sharing), [Диплом Eduson](https://drive.google.com/file/d/152YpFHu8fSTllpPNXkHANCY4sr1VlYTe/view?usp=sharing),
 [Удостоверение ПК Eduson](https://drive.google.com/file/d/12GWq2z_H3xb647Nxisl4XXta2JMxsG8_/view?usp=sharing) 
 
+- Курсы VK Education.
+[Сертификат]([https://drive.google.com/file/d/1_hxwksr1GQOesa8DfKmAs-LVUalI_X8w/view?usp=sharing])  
 - Стажировка.
 
 [Сертификат](https://drive.google.com/file/d/1yRySHcCyKW1gJTqUCX5Wa48NUqcYiPn8/view?usp=drive_link)
